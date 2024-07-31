@@ -9,9 +9,9 @@ To do:
 
 Clothes:
 
--Thigh highs 
--            >https://www.amazon.com/gp/product/B0D6387XMF/ref=ox_sc_act_image_1?smid=AKUY9RC11KRRY&psc=1
--Arm warmers
+-Thigh highs__
+               >https://www.amazon.com/gp/product/B0D6387XMF/ref=ox_sc_act_image_1?smid=AKUY9RC11KRRY&psc=1__
+-Arm warmers__
 
 -a collar i guess? kinda like this 
 
