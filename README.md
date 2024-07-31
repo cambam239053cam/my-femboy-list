@@ -5,8 +5,11 @@ Get rid of achne
 Exercise
 
 Clothes:
+
 Thigh highs 
+
 Arm warmers
+
 a collar i guess? kinda like this https://www.amazon.com/ETHOON-Adjustable-Leather-Choker-Necklace/dp/B07QWPXY63?th=1
 
 a skirt kind of like this
