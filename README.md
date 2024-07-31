@@ -10,7 +10,7 @@ Exercise
 Clothes:
 
 Thigh highs 
-
+            >https://www.amazon.com/gp/product/B0D6387XMF/ref=ox_sc_act_image_1?smid=AKUY9RC11KRRY&psc=1
 Arm warmers
 
 a collar i guess? kinda like this https://www.amazon.com/ETHOON-Adjustable-Leather-Choker-Necklace/dp/B07QWPXY63?th=1
