@@ -10,7 +10,7 @@ Exercise
 Clothes:
 
 Thigh highs  
-   |            >https://www.amazon.com/gp/product/B0D6387XMF/ref=ox_sc_act_image_1?smid=AKUY9RC11KRRY&psc=1  
+   |            >[both](https://www.amazon.com/Tongcloud-Womens-Striped-Warmer-Fingerless/dp/B0CL6SF7NC/ref=sr_1_4?crid=8CQQGAQPB4LC&dib=eyJ2IjoiMSJ9.zJPdnh5M6-iK9o3pjFyTRfWyswRUy4_GExs27ATVnSgJGWnDEAamt23sQsi0c66gpRRRmq1yGrzzMuC1cwWki1-MBO4BijXBCJHGgLqA-r3yfYz9H1rFTARM1EBIsIMksG_y8QRpopLHvaW6hnfzbHboQ7OosrfSvqSV5iXywywIEfEqju4vBpX-g7KSO_d2yzq6EtW-W2VRW2HmAw2MNabmF-4jrlfnTZO_KKB4pHsRXX6ygc6hE_GGyyEMsJMeqfDVqlcbk3AuEjVRJ2UNR2blm5EfZL2N905GbYeDUqk.6qtfeVaylkZpB82ZwK1lN8If4zm-_7SgioDBL8b0WAY&dib_tag=se&keywords=thigh%2Bhigh%2Band%2Barm%2Bwarmer%2Bset&qid=1722535526&sprefix=thigh%2Bhigh%2Band%2Barm%2Bwa%2Caps%2C189&sr=8-4&th=1)
 Arm warmers  
 
 a collar i guess? kinda like this 
