@@ -9,7 +9,7 @@ Exercise
 
 Clothes:
 
-(Thigh highs)[https://www.amazon.com/Striped-Cotton-School-Halloween-Christmas/dp/B0D59XJNQZ/ref=mp_s_a_1_1_sspa?crid=2OEETH9OXUKOZ&dib=eyJ2IjoiMSJ9.z9lpF9ASPhOI1zPF_Zjkf__xzwcLBrku23YN5lImHDEkkOahax-A-P8PQtVl_DsgrzE7yZtonzJoKnyuXrtku48wAAsptTUtcv89U57qfWMB1N5VFaSgQJ9iKaFIPybSIR3Ak4rjWQp8KohkRuQV2qw6FApVexc9QFu9JWJDGtNRyQ7D3j_-KjjK1NleaqX0njFZS6iQL9nQ0X6p1K7XDyNwQMr-jjiZL7Ty2jaxhowqDhxsNq1zg2i1esZkdz0WsU-B60FzqavVlWvv84Mcm_BRG5OJkf4AtI8r5Sn2bhA.HjIN-QIkuM7zH6KIyJd2dDglTo5UPSegSSwEOozdk10&dib_tag=se&keywords=black+and+white+thigh+highs&qid=1725632387&sprefix=black+and+white+thigh+%2Caps%2C107&sr=8-1-spons&sp_csd=d2lkZ2V0TmFtZT1zcF9waG9uZV9zZWFyY2hfYXRm&psc=1]
+[Thigh highs](https://www.amazon.com/Striped-Cotton-School-Halloween-Christmas/dp/B0D59XJNQZ/ref=mp_s_a_1_1_sspa?crid=2OEETH9OXUKOZ&dib=eyJ2IjoiMSJ9.z9lpF9ASPhOI1zPF_Zjkf__xzwcLBrku23YN5lImHDEkkOahax-A-P8PQtVl_DsgrzE7yZtonzJoKnyuXrtku48wAAsptTUtcv89U57qfWMB1N5VFaSgQJ9iKaFIPybSIR3Ak4rjWQp8KohkRuQV2qw6FApVexc9QFu9JWJDGtNRyQ7D3j_-KjjK1NleaqX0njFZS6iQL9nQ0X6p1K7XDyNwQMr-jjiZL7Ty2jaxhowqDhxsNq1zg2i1esZkdz0WsU-B60FzqavVlWvv84Mcm_BRG5OJkf4AtI8r5Sn2bhA.HjIN-QIkuM7zH6KIyJd2dDglTo5UPSegSSwEOozdk10&dib_tag=se&keywords=black+and+white+thigh+highs&qid=1725632387&sprefix=black+and+white+thigh+%2Caps%2C107&sr=8-1-spons&sp_csd=d2lkZ2V0TmFtZT1zcF9waG9uZV9zZWFyY2hfYXRm&psc=1) 
 
 arm warmers
 
