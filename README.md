@@ -11,7 +11,7 @@ Clothes:
 
 [Thigh highs](https://www.amazon.com/Striped-Cotton-School-Halloween-Christmas/dp/B0D59XJNQZ/ref=mp_s_a_1_1_sspa?crid=2OEETH9OXUKOZ&dib=eyJ2IjoiMSJ9.z9lpF9ASPhOI1zPF_Zjkf__xzwcLBrku23YN5lImHDEkkOahax-A-P8PQtVl_DsgrzE7yZtonzJoKnyuXrtku48wAAsptTUtcv89U57qfWMB1N5VFaSgQJ9iKaFIPybSIR3Ak4rjWQp8KohkRuQV2qw6FApVexc9QFu9JWJDGtNRyQ7D3j_-KjjK1NleaqX0njFZS6iQL9nQ0X6p1K7XDyNwQMr-jjiZL7Ty2jaxhowqDhxsNq1zg2i1esZkdz0WsU-B60FzqavVlWvv84Mcm_BRG5OJkf4AtI8r5Sn2bhA.HjIN-QIkuM7zH6KIyJd2dDglTo5UPSegSSwEOozdk10&dib_tag=se&keywords=black+and+white+thigh+highs&qid=1725632387&sprefix=black+and+white+thigh+%2Caps%2C107&sr=8-1-spons&sp_csd=d2lkZ2V0TmFtZT1zcF9waG9uZV9zZWFyY2hfYXRm&psc=1) 
 
-arm warmers
+[arm warmers(maybe)](https://www.amazon.com/Stripe-Pattern-Thumbhole-Fingerless-Warmers/dp/B00CR55QJ6/ref=mp_s_a_1_23?crid=32QG04YFMFR3I&dib=eyJ2IjoiMSJ9.ZlOnvCdv3cTkZ9_d8y7RjulSPw1aKYRalXa_6aIfSu0PKVXwCyVlbBuXyC8J85v88qwRlySKBc1jvKbSqwteeT2g-BTXCpBkHgjGXJBdsM-qHV_QQ8dz5hD2N8XLl0iVB-LaVii5i4rwIPUM7Z-moR9seSG8HJi9iwxl4b_Mm1VcPILgeAj8DTmTc4wgWi3PSrh7CSUu3Vs0AsuE47QtEdJpl6_z0Yjvdk-juoVPXZu_jUQD_Ihm-vD8xIUGC8hmNDWC6uomHZiV6QKOUG5g32phtv4YpJh52d0OaNdeLzE.HtRt6GScx0mSIDsXf6lMNYorATafpCsk4f-Y7w_0gdY&dib_tag=se&keywords=black%2Band%2Bwhite%2Barm%2Bwarmers&qid=1725632674&sprefix=black%2Band%2Bwhite%2Barm%2Bwarmers%2Caps%2C131&sr=8-23&th=1&psc=1) 
 
 a collar i guess? kinda like this 
 
